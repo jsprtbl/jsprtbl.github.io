@@ -1,1 +1,0 @@
-# jsprtbl.github.io
